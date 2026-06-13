@@ -1,4 +1,4 @@
-## Hi i'm Mark 👋
+## Hi i'm Mark 
 
 I'm Cybersecurity professional analyst 
 
