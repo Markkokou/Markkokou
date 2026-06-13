@@ -1,6 +1,6 @@
-## Hi i'm MARK 👋
+## Hi i'm Mark 👋
 
-I'm Cybersecurity professional analyst over 5 years experience
+I'm Cybersecurity professional analyst 
 
 ## Objective
 
